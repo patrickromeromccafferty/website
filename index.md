@@ -1,4 +1,1 @@
-                                                                  [about](about.md)
-
-                                                                  
-                                                                  [wet grain](wetgrain.md)
+[about](about.md) [wet grain](wetgrain.md)

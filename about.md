@@ -7,4 +7,5 @@ He curates Inside Voices at King Tut’s in Glasgow and convenes the Oxford Writ
 
 
 ![Patrick Romero McCafferty](headshot.png)
-credit: [anna urban](https://www.annaurban.com/)
+
+  credit: [anna urban](https://www.annaurban.com/)

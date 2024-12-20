@@ -1,6 +1,6 @@
 # About
 
-![Patrick Romero McCafferty]
+![Patrick Romero McCafferty](Screenshot 2024-12-16 at 17.14.08.png)
 
 
 Patrick Romero McCafferty is a poet of Scottish and Mexican heritage. His work has been shortlisted for a number of prizes and appeared in literary journals including Irish Pages, Rialto and Wasafiri. He co-founded Wet Grain and has performed widely at venues around the UK as a solo performer and with the band anoraq. 

@@ -2,6 +2,6 @@ Anoraq is a Glasgow-based spoken-word and ambient music outfit. They founded [In
 and music at King Tut's which has so far seen fourteen instalments and featured some of Scotland's most important emerging poets. 
 Performances include support for acts ranging from Frankie Stew & Harvey Gunn to LYR. 
 
-![Anoraq Sketch](
+![Anoraq Sketch](anoraq.jpg)
 
 

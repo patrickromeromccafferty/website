@@ -1,4 +1,4 @@
-# W E T  G R A I N
+# wetgrain
 
 ![prints](IMG_0683.jpeg)
 

@@ -1,4 +1,4 @@
-W E T  G R A I N
+# W E T  G R A I N
 
 ![prints](IMG_0683.jpeg)
 
@@ -10,5 +10,5 @@ housed at the National and Scottish Poetry Libraries, the British Library, the B
 Library of Scotland.
 
 
-
-[wetgrainpoetry](www.instagram.com/wetgrainpoetry)
+[Visit wetgrainpoetry.co.uk](wetgrainpoetry.co.uk)
+[Instagram: wetgrainpoetry](www.instagram.com/wetgrainpoetry)

@@ -1,4 +1,4 @@
-Set between Scotland and Mexico, the poems in *Glass Knot Sun* pose perennial questions of love, labour and land. They do this through the central images of building (from adobe bricks to boat making) and gathering (from windfall almonds to fishing nets), the poem becoming part record of subsistence, part song.
+Set between Scotland and Mexico, the poems in *Glass Knot Sun* pose perennial questions of love, labour and land. They do this through the central metaphors of building (from adobe bricks to boat making) and gathering (from windfall almonds to fishing nets), the poem becoming part record of subsistence, part song.
 
 In the face of widespread disconnection and environmental decay, 
 McCafferty’s poems remain full of hope, charged with metaphors 

@@ -6,7 +6,7 @@ Patrick Romero McCafferty (vocals) • Tim Martin Ciubotaru (guitar) • Alex Pa
 
 Anoraq have supported as diverse acts as LYR (Simon Armitage) and hip-hop duo Frankie Stew & Harvey Gun. 
 
-They founded [Inside Voices](insidevoices.md), a poetry and music night at King Tut’s, Scotland’s leading independent music venue. They 
+They founded [Inside Voices](insidevoices.md), a poetry and music night at King Tut’s, Scotland’s leading independent music venue. 
 
 Their single ['Raisins'](https://open.spotify.com/album/3Huyab6as09iVfEEvGXSmW?si=xrgOcKSNSAid0imYavlKRw) was release in February 2025.
 

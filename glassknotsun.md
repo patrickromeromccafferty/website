@@ -8,4 +8,9 @@ that is tender and immersive, inquisitive and wise, the poems display
 a playful reverence for the natural world, capturing its timeless 
 vitality and transformative power - Isabelle Baafi
 
+What I find remarkable about Patrick Romero McCafferty is his openness. 
+It is there is the writing - an openness to life, an openness to situations, 
+people, and moments. He has that sensitivity that marks out the best writers. 
+This is the first pamphlet of a writer who is going places - Niall Campbell
+
 [Buy Glass Knot Sun](https://www.brookes.ac.uk/research/units/hss/centres/poetry-centre/ignitionpress/poets)

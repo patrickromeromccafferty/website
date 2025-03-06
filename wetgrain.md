@@ -2,5 +2,5 @@
 
 ![prints](IMG_0683.jpeg)
 
-[wetgrainpoetry.co.uk](wetgrainpoetry.co.uk)
-[@wetgrainpoetry](www.instagram.com/wetgrainpoetry)
+[wetgrainpoetry.co.uk](https://wetgrainpoetry.co.uk/)
+[@wetgrainpoetry](https://www.instagram.com/wetgrainpoetry/)

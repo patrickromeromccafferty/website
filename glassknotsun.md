@@ -13,4 +13,4 @@ It is there is the writing - an openness to life, an openness to situations,
 people, and moments. He has that sensitivity that marks out the best writers. 
 This is the first pamphlet of a writer who is going places - Niall Campbell
 
-[Buy Glass Knot Sun](https://www.brookes.ac.uk/research/units/hss/centres/poetry-centre/ignitionpress/poets)
+[Buy Glass Knot Sun](https://www.brookes.ac.uk/research/units/hss/centres/poetry-centre/ignitionpress/poets](https://shop.brookes.ac.uk/product-catalogue/faculty-of-humanities-social-sciences/poetry-pamphlets)

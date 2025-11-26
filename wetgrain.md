@@ -1,4 +1,4 @@
-# wetgrain
+# wet grain
 
 
 Wet Grain is a magazine for poetry engaging with matters of land-use, provenance, and ownership. It is edited by Patrick Romero McCafferty & Nasim Luczaj. <br><br>

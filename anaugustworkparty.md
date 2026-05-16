@@ -1,3 +1,7 @@
+[home](index.md)  |  [about](about.md)   |  [glass knot sun](glassknotsun.md)  |      [wet grain](wetgrain.md)  |  
+
+<br>
+<br>
 
 ## An August Work Party
 

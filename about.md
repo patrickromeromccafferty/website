@@ -1,4 +1,4 @@
-[home](index.md)  |   [glass knot sun](glassknotsun.md)  |   [anoraq](anoraq.md)   |    [wet grain](wetgrain.md)  |  
+[home](index.md)  |   [glass knot sun](glassknotsun.md)  |   [an august work party](anoraq.md)   |    [wet grain](wetgrain.md)  |  
 
 <br>
 <br>
@@ -17,11 +17,11 @@ Patrick also curates [Inside Voices](insidevoices.md) at King Tut’s in Glasgow
 </p>
 
 <p align="center">
-  <a href="https://www.instagram.com/wetgrainpoetry/">
+  <a href="https://www.instagram.com/patrickromeromcc/">
     <img src="insta.png" alt="Issue Six" width="25"/>
   </a>
 </p>
 
-  credit: [anna urban](https://www.annaurban.com/)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Photo by Anna Urban
 
-[@patrickromeromcc](https://www.instagram.com/patrickromeromcc/)
+

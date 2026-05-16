@@ -5,7 +5,7 @@
 
 
 <p align="center">
-  <img src="IMG_2682.jpeg" alt="olives" width="800">
+  <img src="IMG_2682.jpeg" alt="olives" width="400">
 </p>
 
 <br>

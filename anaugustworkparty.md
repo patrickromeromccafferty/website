@@ -15,11 +15,14 @@
 <br>
 
 
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *A cosmic canter into the realms of lyrical wonderment* - **Michael Pedersen, Edinburgh Makar** <br>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; *An intimate, beautiful journey of an album* - **Iona Zajac**
+
 **An August Work Party** is the debut album by anoraq, a Glasgow-based folk/electronica/ambient band. It is available on streaming platforms and can also be bought [here](https://anoraq.bandcamp.com/album/an-august-work-party)
 
 
-Patrick Romero McCafferty (vocals) • Tim Martin Ciubotaru (guitar) • Alex Palmer (percussion) • Lewis Hall (keys) • Peter Alec Kay (fiddle & bass) • Mixed and mastered by Peter Alec Kay & Barry Reid • Cover photograph and design by Clara Ionita 
-
+Patrick Romero McCafferty (vocals) • Tim Martin Ciubotaru (guitar) • Alex Palmer (percussion) • Lewis Hall (keys) • Peter Alec Kay (fiddle & bass) • Mixed and mastered by Peter Alec Kay & Barry Reid • Cover photograph and design by Clara Ionita •
 
 <br>
 

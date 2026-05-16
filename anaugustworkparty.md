@@ -21,6 +21,8 @@ Patrick Romero McCafferty (vocals) • Tim Martin Ciubotaru (guitar) • Alex Pa
 
 **Anoraq** was The Scotsman's Artist of the Week in April 2025. The band has supported as diverse acts as LYR (Simon Armitage) and hip-hop duo Frankie Stew & Harvey Gun. Since 2023, the band has hosted [Inside Voices](insidevoices.md), a poetry and music night at King Tut’s, Scotland’s leading small music venue. 
 
+<br>
+
 <p align="center">
     <img src="DSCF5551.jpeg" alt="Issue Six" width="400"/>
 </p>

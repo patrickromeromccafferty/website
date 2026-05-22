@@ -10,7 +10,7 @@
 <br><br>
 
 <p align="center">
-  <img src="Issue7.jpeg" alt="a" width="300">
+  <img src="PHOTO-2026-04-15-11-16-28.jpg" alt="a" width="300">
 </p>
 
 [**Wet Grain**](wetgrainpoetry.co.uk) is a magazine for poetry engaging with matters of land-use, provenance, and ownership.

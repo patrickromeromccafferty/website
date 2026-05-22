@@ -1,3 +1,8 @@
+[home](index.md)  |   [about](about.md)  | [glass knot sun](glassknotsun.md)  |   [an august work party](anoraq.md)   |      
+
+<br>
+<br>
+
 <br><br>
 
 ## Wet Grain

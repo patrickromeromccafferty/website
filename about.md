@@ -1,4 +1,4 @@
-[home](index.md)  |   [glass knot sun](glassknotsun.md)  |   [an august work party](anoraq.md)   |    [wet grain](wetgrain.md)  |  
+[home](index.md)  |   [glass knot sun](glassknotsun.md)  |   [an august work party](anaugustworkparty.md)   |    [wet grain](wetgrain.md)  |  
 
 <br>
 <br>
